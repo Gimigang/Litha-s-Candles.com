@@ -1,1 +1,0 @@
-# Litha-s-Candles.com
